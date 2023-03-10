@@ -1,17 +1,14 @@
 ---
 title: Parcours Scolaire
 ---
-## Cursus ingénieur Agronome (Spécialisation Productions animales)
-### L’institut Agro _ Rennes (35)
-#### 2016 – 2019
+### Cursus ingénieur Agronome (Spécialisation Productions animales)
+#### 2016 - 2019     L’institut Agro _ Rennes (35)
 Travaux de groupes, études bibliographiques, entretiens semi-directifs,
 études de cas, analyse BDD, rédactions et synthèses, ...
 
-## Classe Préparatoire aux Grandes Ecoles Biologie Chimie Physique Sciences de la Terre (CPGE BCPST)
-### Lycée G. Clémenceau _ Nantes (44)
-#### 2014 – 2017
+### Classe Préparatoire aux Grandes Ecoles Biologie Chimie Physique Sciences de la Terre (CPGE BCPST)
+#### 2014 - 2017     Lycée G. Clémenceau _ Nantes (44)
 → Notions de code (Python), culture scientifique, ...
 
-## Bac Scientifique (Option Mathématiques)
-### Lycée M. Genevoix _ Marignane (13)
-#### 2014
+### Bac Scientifique (Option Mathématiques)
+#### 2014     Lycée M. Genevoix _ Marignane (13)
