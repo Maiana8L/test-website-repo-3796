@@ -41,7 +41,7 @@ volaille) en lien avec une entreprise de développement :
 ### Projets sur le comportement des volailles
 #### 2019 à 2022 - Techna France Nutrition _ Couëron (44)
 Protocoles d’éthologie et grilles de notation, observations, entretiens avec
-éleveurs-ses, analyse qualitative d’une BDD, ...
+éleveurs-ses, analyse qualitative de BDD, ...
  
  
 ### Stage d’écologie sur l’étude comportementale d’espèces de lézards endémiques
