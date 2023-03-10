@@ -5,7 +5,7 @@ title: Expériences
 ### Scribouilli
 #### Février 2023 - Montpellier (34)
 Réalisation d'un outil pour aider les personnes qui veulent “juste créer un petit site” pour leur association, leur activité professionnelle ou ce qu’iels veulent.
-Ce site est réalisé grâce à Scribouilli !
+D'ailleurs, ce site est réalisé grâce à Scribouilli !
 - Rodage aux rituels agiles
 - Découverte de Github (fonctionnement, projects, issues, ...)
 - Participation aux tests utilisateurs
