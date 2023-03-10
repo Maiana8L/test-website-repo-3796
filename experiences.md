@@ -44,6 +44,5 @@ Protocoles d’éthologie et grilles de notation, observations, entretiens avec
 éleveurs-ses, analyse qualitative d’une BDD, ...
  
  
-### Stage d’écologie sur l’étude comportementale d’espèces de lézards
-endémiques
+### Stage d’écologie sur l’étude comportementale d’espèces de lézards endémiques
 #### 2017 - Lizard Lab, Macquarie University _ Sydney
