@@ -33,7 +33,7 @@ volaille) en lien avec une entreprise de développement :
 #### 2021 à 2023 - Bretagne élargie
 - Bilan sur ce qu'on aime faire dans la vie
 - Décision de changer de vie et projection de solutions
-- Achat et aménagement d'un camion 4x4 : plans, achats, réalisation ou relation entreprises
+- Achat et aménagement d'un camion 4x4 : plans, achats matériels, réalisation ou relation entreprises
 - Partage de contenu sur Instagram
 - Tous les choix réalisés lors de ce projet ont été actés à l'unanimité par l'ensemble du groupe, composé de 2 personnes (on est en couple quoi)
  
