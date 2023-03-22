@@ -1,8 +1,6 @@
 ---
 title: Bonjour !
 ---
-__Site en cours de construction__
-
 ## Bienvenue sur mon petit site,
 
 ### Moi c'est Maiana LENOIR !
