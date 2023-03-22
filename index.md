@@ -17,7 +17,7 @@ Je mets de plus en plus d'énergie dans l'**écologie**, le **féminisme**, l'**
 Sinon, j'adore **voyager**, ce qui est parfois paradoxal avec ce qui est mentionné juste au-dessus... mais vu que j'ai du mal à renoncer à ça, j'ai choisi d'adopter un mode de voyage un peu moins agressif pour la planète que ce que je faisais avant...
 
 Enfin, mes yeux s'illuminent quand on me propose un **jeu de société** ou de faire des **loisirs créatifs**, ça recharge mes batteries, et parfois, c'est bien nécessaire !
-
-
+  
+  
 > **_Le problème, c’est que les humains ont un don pour désirer ce qui leur fait le plus de mal._**  
     _Harry Potter à l’école des sorciers, Dumbledore._
