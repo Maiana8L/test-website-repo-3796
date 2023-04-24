@@ -15,7 +15,7 @@ Je vis dans une **maison roulante** qui change de direction au gré de mes envie
 
 #### Mes centres d'intérêts
 Je mets de plus en plus d'énergie dans l'**écologie**, le **féminisme**, l'**inclusion** (enfin, tout ça est très lié bien sûr).
-En ce moment, je profite de mon temps libre pour participer à des Fresques ([Climat](https://fresqueduclimat.org/), 2 tonnes, Numérique, Biodiversité, Océane, Diversité, ...) et me suis formée à l'animation de la [Fresque du Climat](https://fresqueduclimat.org/).
+En ce moment, je profite de mon temps libre pour participer à des Fresques ([Climat](https://fresqueduclimat.org/), [2 tonnes](https://www.2tonnes.org/), [Numérique](https://www.fresquedunumerique.org/), [Biodiversité](https://www.fresquedelabiodiversite.org/), [Océane](https://fresqueoceane.com/), [Diversité](https://fresquedeladiversite.org/), ...) et me suis formée à l'animation de la [Fresque du Climat](https://fresqueduclimat.org/) car c'est une méthode que je trouve importante de diffuser, à la fois sur le fond et sur la forme.
 
 Sinon, j'adore **voyager**, ce qui est parfois paradoxal avec ce qui est mentionné juste au-dessus... mais vu que j'ai du mal à renoncer à ça, j'ai choisi d'adopter un mode de voyage un peu moins agressif pour la planète que ce que je faisais avant...
 
