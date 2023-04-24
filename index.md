@@ -1,6 +1,8 @@
 ---
 title: Bonjour !
 ---
+_Site en cours de construction_
+
 ## Bienvenue sur mon petit site,
 
 ### Moi c'est Maiana Lenoir !
@@ -13,6 +15,7 @@ Je vis dans une **maison roulante** qui change de direction au gré de mes envie
 
 #### Mes centres d'intérêts
 Je mets de plus en plus d'énergie dans l'**écologie**, le **féminisme**, l'**inclusion** (enfin, tout ça est très lié bien sûr).
+En ce moment, je profite de mon temps libre pour participer à des Fresques ([Climat](https://fresqueduclimat.org/), 2 tonnes, Numérique, Biodiversité, Océane, Diversité, ...) et me suis formée à l'animation de la [Fresque du Climat](https://fresqueduclimat.org/).
 
 Sinon, j'adore **voyager**, ce qui est parfois paradoxal avec ce qui est mentionné juste au-dessus... mais vu que j'ai du mal à renoncer à ça, j'ai choisi d'adopter un mode de voyage un peu moins agressif pour la planète que ce que je faisais avant...
 
