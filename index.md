@@ -19,7 +19,7 @@ Sinon, j'adore **voyager**, ce qui est parfois paradoxal avec ce qui est mention
 
 Enfin, mes yeux s'illuminent quand on me propose un **jeu de société** ou de faire des **loisirs créatifs**, ça recharge mes batteries, et parfois, c'est bien nécessaire !
   
-####
+
 
 Et pour finir cette page d'accueil, une petite citation, un peu ... mélancolique ?  
 > **_Le problème, c’est que les humains ont un don pour désirer ce qui leur fait le plus de mal._**  
