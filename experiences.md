@@ -3,7 +3,7 @@ title: Expériences
 ---
 ## En informatique
 ### Scribouilli
-#### 2023 - Montpellier (34)
+#### 2023 - Montpellier (34) & Pleurtuit
 Réalisation d'un outil pour aider les personnes qui veulent “juste créer un petit site” pour leur association, leur activité professionnelle ou ce qu’iels veulent.  
 D'ailleurs, ce site est réalisé grâce à Scribouilli !
 - Rodage aux rituels agiles
