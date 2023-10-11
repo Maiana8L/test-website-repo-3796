@@ -61,6 +61,6 @@ Et bien non ! Déjà au bout d'un moment tu ne pourras pas faire autrement, mais
 > **_Dans le monde il n’y a pas d’un côté le bien et le mal, il y a une part de lumière et d’ombre en chacun de nous. Ce qui compte c’est celle que l’on choisit de montrer dans nos actes, ça c’est ce que l’on est vraiment._**
 _Harry Potter et l'ordre du phœnix, Sirius Black_
 
-_Article écrit dans le cadre du challenge écolo Ma Petite Planète, pour le défi"Journaliste écolo en devenir"
+_Article écrit dans le cadre du challenge écolo Ma Petite Planète, pour le défi "Journaliste écolo en devenir"
 C'est un article plus blabla que scientifique ou même socio, mais c'est de ça dont j'avais envie de parler !
 J'espère prendre le temps à d'autres moments d'écrire sur d'autres sujets, car ça m'a bien plus !_ 
