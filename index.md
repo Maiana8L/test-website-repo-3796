@@ -1,5 +1,6 @@
 ---
-title: Bonjour !
+title: "Bonjour !"
+order: 1
 ---
 ## Bienvenue sur mon petit site,
 
