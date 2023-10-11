@@ -80,7 +80,7 @@ Et bien non Jackie ! Déjà au bout d'un moment tu ne pourras pas faire autremen
 
 Pour vous dire même, je crois que j'ai lutté un moment contre ça par peur de ne pas avoir de personnalité, de faire "comme les autres". Et ben "les autres" maintenant ce sont mes supers alliés qui m'aident beaucoup au quotidien, je les adore, et ça fait trop du bien d'avoir ce cercle de tolérance et bienveillance, et de ne pas être dans le jugement et la critique ! 🌈
 
-> **_Dans le monde il n’y a pas d’un côté le bien et le mal, il y a une part de lumière et d’ombre en chacun de nous. Ce qui compte c’est celle que l’on choisit de montrer dans nos actes, ça c’est ce que l’on est vraiment._**
+> **_Dans le monde il n’y a pas d’un côté le bien et le mal, il y a une part de lumière et d’ombre en chacun de nous. Ce qui compte c’est celle que l’on choisit de montrer dans nos actes, ça c’est ce que l’on est vraiment._**  
 _Harry Potter et l'ordre du phœnix, Sirius Black_
 
 _Article écrit dans le cadre du challenge écolo [Ma Petite Planète](https://mapetiteplanete.org/), pour le défi "Journaliste écolo en devenir"._  
