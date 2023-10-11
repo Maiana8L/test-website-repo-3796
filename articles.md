@@ -10,7 +10,7 @@ D'autre part, l'**éco-anxiété** est relative aux émotions d'angoisse, de peu
 Vous l'aurez compris, à l'intersection des deux, il y a donc la charge mentale écologique, c'est-à-dire le fait de se soucier des problématiques environnementales, vouloir mettre en place des éco-gestes dans son quotidien, éduquer ses proches, subir l'impact social, etc. C'est donc un joli jackpot pour les "jeunes femmes" !  
 ![](/images/Charge mentale écologique 1.jpg)
 
-## Les différentes phases de la charge mentale écologique.
+## Les différentes phases de la charge mentale écologique
 Sans avoir fait une étude scientifique sur le sujet, je peux dire que dans mon entourage, et pour moi même d'ailleurs, la prise de conscience écologique, et la charge mentale associée, suivent souvent plusieurs étapes au cours de la vie :
 #### Valeurs  
 Généralement, il y a toujours un fond de notions écologiques liées à l'éducation (famille ou école) : on tri des déchets, on éteint la lumière, on ne laisse pas couler l'eau, etc.  
