@@ -4,7 +4,7 @@ order: 4
 ---
 # L'écologie : la nouvelle charge mentale
 
-De là où j'écris, c'est à dire en 2023 en France, les notions d'éco-anxiété et de charge mentale sont assez couramment utilisées. _D'ailleurs hier, le 10/10, c'était la journée mondiale de la santé mentale_    
+De là où j'écris, c'est à dire en 2023 en France, les notions d'éco-anxiété et de charge mentale sont assez couramment utilisées. _D'ailleurs hier, le 10/10, c'était la journée mondiale de la santé mentale._    
 D'une part, la **charge mentale** est le fait de devoir penser à tout, tout le temps : logement, travail, entourage, soi-même ?, etc. C'est un concept qui provoque beaucoup de fatigue et [qui touche principalement les femmes](https://lejournal.cnrs.fr/nos-blogs/dialogues-economiques/la-charge-mentale-une-double-peine-pour-les-femmes) (patriarcat, tout ça tout ça, c'est pas le sujet principal de l'article donc je passe, pour l'instant).  
 D'autre part, l'**éco-anxiété** est relative aux émotions d'angoisse, de peur, de colère, de tristesse, etc liées au dérèglement climatique et à la dégradation de l'état de la planète. C'est un sentiment [qui touche particulièrement les jeunes](https://www.france24.com/fr/plan%C3%A8te/20220729-%C3%A9co-anxi%C3%A9t%C3%A9-une-jeunesse-face-aux-angoisses-%C3%A9cologiques).  
 Vous l'aurez compris, à l'intersection des deux, il y a donc la charge mentale écologique, c'est-à-dire le fait de se soucier des problématiques environnementales, vouloir mettre en place des éco-gestes dans son quotidien, éduquer ses proches, en subir l'impact social, etc. C'est donc un joli jackpot pour les "jeunes femmes" !  
