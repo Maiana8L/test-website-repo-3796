@@ -71,17 +71,18 @@ Bon et méa culpa quand même, j'ai probablement pensé, voire dit certaines de 
 
 ## Le combo paradoxal
 Tous ces sujets ça amène pas mal de fatigue, de colère (oui ça déteint peut être un peu dans l'article, oups), et de remises en question des normes.  
+
 Ce dernier point vient généralement titiller d'autres domaines : le travail, les relations, le capitalisme, le patriarcat !
 Et oui, à un certain moment, surtout peut-être quand on est une "jeune femme" et qu'on sent plein d'incohérences dans son quotidien, on se rend compte que l'écologie et les luttes féministes modernes sont intimement liées, notamment dans cette notion de charge mentale. Ce qui ouvre encore pluuus de questions, et de fatigue possiblement. #combo
 
-"Oui d'accord, mais du coup ça donne pas du tout envie de s'y mettre tout ça. Autant rester dans le déni !"
-Et bien non Jackie ! Déjà au bout d'un moment tu ne pourras pas faire autrement, mais ce qui est paradoxal, c'est que finalement, malgré toute cette fatigue, ces frictions (internes et externes), ces changements (qu'on peut voir comme des privations parfois), jamais je ne me suis sentie plus alignée avec moi-même qu'en m'appropriant cette cause ! Donc fonce !  
+"Oui d'accord, mais du coup ça donne pas du tout envie de s'y mettre tout ça. Autant rester dans le déni !"  
+Et bien non Jackie ! Déjà au bout d'un moment tu ne pourras pas faire autrement, mais ce qui est paradoxal, c'est que finalement, malgré toute cette fatigue, ces frictions (internes et externes), ces changements (qu'on peut voir comme des privations parfois), jamais je ne me suis sentie plus alignée avec moi-même qu'en m'appropriant cette cause ! **Donc fonce !**  
 
-Pour vous dire même, je crois que j'ai lutté un moment contre ça par peur de ne pas avoir de personnalité, de faire "comme les autres", et ben "les autres" maintenant ce sont mes supers alliés qui m'aident beaucoup au quotidien, je les adore, et ça fait trop du bien d'avoir ce cercle de tolérance et bienveillance, et de ne pas être dans le jugement et la critique !
+Pour vous dire même, je crois que j'ai lutté un moment contre ça par peur de ne pas avoir de personnalité, de faire "comme les autres". Et ben "les autres" maintenant ce sont mes supers alliés qui m'aident beaucoup au quotidien, je les adore, et ça fait trop du bien d'avoir ce cercle de tolérance et bienveillance, et de ne pas être dans le jugement et la critique ! 🌈
 
 > **_Dans le monde il n’y a pas d’un côté le bien et le mal, il y a une part de lumière et d’ombre en chacun de nous. Ce qui compte c’est celle que l’on choisit de montrer dans nos actes, ça c’est ce que l’on est vraiment._**
 _Harry Potter et l'ordre du phœnix, Sirius Black_
 
-_Article écrit dans le cadre du challenge écolo Ma Petite Planète, pour le défi "Journaliste écolo en devenir"
-C'est un article plus blabla que scientifique ou même socio, mais c'est de ça dont j'avais envie de parler !
-J'espère prendre le temps à d'autres moments d'écrire sur d'autres sujets, car ça m'a bien plus !_ 
+_Article écrit dans le cadre du challenge écolo [Ma Petite Planète](https://mapetiteplanete.org/), pour le défi "Journaliste écolo en devenir"._  
+_C'est un article plus blabla que scientifique ou même socio, mais c'est de ça dont j'avais envie de parler !_  
+_J'espère prendre le temps à d'autres moments d'écrire sur d'autres sujets, car ça m'a bien plu !_ 
