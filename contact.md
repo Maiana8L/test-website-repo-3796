@@ -1,5 +1,6 @@
 ---
-title: Contact
+title: "Contact"
+order: 4
 ---
 Si vous souhaitez m'écrire, c'est par ici !
 #### 📨 maiana.lenoir@mailo.com
