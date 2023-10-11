@@ -61,7 +61,7 @@ Et au delà de son comportement, il faut avoir réponse à tout pour légitimer 
 - "Ok le train en France ça pollue peu, mais à l'étranger ils fonctionnent pas au nucléaire, alors est ce que c'est vraiment écolo ? Et d'ailleurs est ce que le nucléaire c'est vraiment bien ?"  
 - "Tu n'as pas entendu ce qu'il se passe en ce moment dans le sud de la Bolivie ??"  
 
-Exaspérant non ? On s'en rend compte, là, de la charge mentale qu'il y a à affronter ses débats ? Se renseigner ? Retenir les chiffres ? Retourner les conversations dans sa tête pour savoir ce qu'on aurait dû répondre ? Faire comme si ça ne nous atteignait pas par "peur" que cela soit mal vu et que ça déteigne sur la démarche écolo de manière générale ?  
+Exaspérant non ? On s'en rend compte, là, de la charge mentale qu'il y a à affronter ces débats ? Se renseigner ? Retenir les chiffres ? Retourner les conversations dans sa tête pour savoir ce qu'on aurait dû répondre ? Faire comme si ça ne nous atteignait pas par "peur" que cela soit mal vu et que ça déteigne sur la démarche écolo de manière générale ?  
 
 Je me dis de plus en plus qu'en réponse à certaines personnes, je devrais préparer des punchlines qui questionnent leurs normes, car c'est certains qu'eux non plus n'ont pas de réponse pour chaque acte qu'ils font, autre que le fait qu'elle soit la norme actuelle.  
 
