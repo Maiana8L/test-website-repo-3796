@@ -1,6 +1,6 @@
 ---
 title: "Parcours scolaire"
-order: 4
+order: 3
 ---
 #### Cursus ingénieur Agronome (Spécialisation Productions animales)
 **2016 à 2019 - L’institut Agro _ Rennes (35)**
