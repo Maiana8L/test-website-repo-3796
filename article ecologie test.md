@@ -1,6 +1,7 @@
 ---
-title: "Article écologie"
+title: "Article écologie test"
 order: 4
+in_menu: true
 ---
 # L'écologie : la nouvelle charge mentale
 
