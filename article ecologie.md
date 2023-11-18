@@ -1,5 +1,5 @@
 ---
-title: "Article écologie test"
+title: "Article écologie"
 order: 4
 in_menu: true
 ---
